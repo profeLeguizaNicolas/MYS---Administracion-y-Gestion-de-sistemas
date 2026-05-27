@@ -1,1 +1,0 @@
-# MYS---Administracion-y-Gestion-de-sistemas
